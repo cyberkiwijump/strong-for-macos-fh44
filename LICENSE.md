@@ -1,4 +1,4 @@
-# 
+# Enhance Nike Training Club for macOS with Nike Training Club for macOS instant Plugin: water-intake-tracking & social-sharing, the #1 plugin. Includes water-intake-tracking and
 
 
 
